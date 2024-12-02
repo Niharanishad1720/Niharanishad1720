@@ -11,5 +11,5 @@
       www.linkedin.com/in/
 indu-krishna-p-a10b30106
 
-- 😄PMrs
+- 😄Mrs
 - ⚡I believe every dataset has a story to tell, and I enjoy being the storyteller!
